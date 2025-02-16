@@ -1,4 +1,3 @@
-<meta name="google-site-verification" content="HgGYcZ_uY2A9X45StuloK1Nvx4n0v_NvenWElSa0_kM" />
 
 
 ## [juwa 777 apk](https://juwa777apk.net/download-juwa/)
